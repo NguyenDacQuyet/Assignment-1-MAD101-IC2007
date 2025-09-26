@@ -1,2 +1,3 @@
-Nguyễn Đắc Quyết-HE201412
-Vũ Ngọc Bá-HE204182
+1.Nguyễn Đắc Quyết-HE201412
+
+2.Vũ Ngọc Bá-HE204182
